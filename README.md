@@ -1,2 +1,2 @@
-# Project
-mid term project code
+# Zholchubekov Kalmyrza
+
